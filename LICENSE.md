@@ -1,4 +1,4 @@
-# 
+# Enhance your NFT trading with nft trading bot premium Bot - gas-optimization and early-mint-access, the #1 nft trading bot. Includes gas-optimization and early-mint-access for a
 
 
 
